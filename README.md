@@ -11,15 +11,15 @@ Born c. 1930s
 
 Born c. 1940s 
 
-#1 (1940s cohorts) The Beatles, and solo albums: 10
+-- #1 (1940s cohorts) The Beatles, and solo albums: 10
 
-#2 (1940s cohorts) The Beach Boys: 5 
+-- #2 (1940s cohorts) The Beach Boys: 5 
 
-#3 (1940 cohorts) Eric Clapton & Friends: 5 
+-- #3 (1940 cohorts) Eric Clapton & Friends: 5 
 
-#4 (1940s cohorts) James Taylor: 5 
+-- #4 (1940s cohorts) James Taylor: 5 
 
-#5 (1940s cohorts) The Byrds, and solo albums: 4
+-- #5 (1940s cohorts) The Byrds, and solo albums: 4
 
 -- Donovan: 1
 
