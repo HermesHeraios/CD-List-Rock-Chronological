@@ -6,6 +6,7 @@ Born c. 1930s
 --The Everley Brothers: 1
 
 * The Very Best of the Everley Brothers (1957-1961/1964/1990), Warner Brothers 1554-2 [country rock]
+
 {Two goofy guys....}
 
 (Little Richard) 
