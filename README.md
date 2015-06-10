@@ -15,6 +15,8 @@ Born c. 1970s-1980s: The second new wave
 
 Born c. 1930s 
 
+-- Top 5 (non-40s cohorts) (Buddy Holly)
+
 --The Everley Brothers: 1
 
 * The Very Best of the Everley Brothers (1957-1961/1964/1990), Warner Brothers 1554-2 [country rock]
@@ -23,7 +25,6 @@ Born c. 1930s
 
 (Little Richard) 
 
-(Buddy Holly)
 
 Born c. 1940s 
 
@@ -55,7 +56,7 @@ Born c. 1940s
 
 Born c. 1950s-1960s 
 
--- Phil Collins: 2
+-- Top 5 (non-40s cohorts) Phil Collins: 2
 
 -- Train: 1
 
@@ -67,11 +68,11 @@ Born c. 1950s-1960s
 
 Born c. 1970s-1980s
 
+-- Top 5 (non-40s cohorts) Maroon 5: 2 
+
 -- The Fray: 2 
 
 -- Young Love: 2 
-
--- Maroon 5: 2 
 
 -- John Mayer: 1 
 
