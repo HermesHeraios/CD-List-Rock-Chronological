@@ -49,6 +49,10 @@ Born c. 1950s-1960s
 
 -- The Goo Goo Dolls: 1
 
+* Dizzy Up The Girl (1998), Warner Brothers 9 47058-2 [tough rock]
+
+{You guys are probably too angry and stupid to figure out what I'm talking but that's okay; I'm only here till 8. (tilts head back to drink seltzer water)}
+
 Born c. 1970s-1980s
 
 -- The Fray: 2 
