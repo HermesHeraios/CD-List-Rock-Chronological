@@ -1,5 +1,17 @@
 # CD-List-Rock-Chronological
-That part of the meta-catalog of CDs devoted to rock acts, organized chronologically
+That part of the meta-catalog of CDs devoted to rock acts, organized chronologically....
+
+Specifically, these are the chronological categories: 
+
+Born c. 1930s: O Pioneers! 
+
+Born c. 1940s: Bust out some superlatives 
+
+Born c. 1950s-1960s: The first new wave 
+
+Born c. 1970s-1980s: The second new wave
+
+....
 
 Born c. 1930s 
 
