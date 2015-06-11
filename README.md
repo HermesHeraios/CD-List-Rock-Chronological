@@ -76,4 +76,8 @@ Born c. 1970s-1980s
 
 -- John Mayer: 1 
 
+* Paradise Valley (2013), Columbia 88883 75648 2 [folk rock]
+
+{This is folk-tastic, you guys. You might not understand.}
+
 -- Keane: 1
