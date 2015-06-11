@@ -30,6 +30,10 @@ Born c. 1940s
 
 -- #1 (1940s cohorts) The Beatles, and solo albums: 10
 
+* Sgt. Pepper's Lonely Hearts Club Band (1967/2009), Apple 0946 3 82419 2 8 [psychedelic rock]
+
+{I mean, personally I prefer "Magical Mystery Tour", but at least its position relative to the rest of the Beatles catalog isn't as weak or deceptive as "What's Going On" is to Marvin Gaye's very good work, in terms of Rolling Stone and the criminal critics trying to mess up every blessed thing.}
+
 -- #2 (1940s cohorts) The Beach Boys: 5 
 
 -- #3 (1940 cohorts) Eric Clapton & Friends: 5 
