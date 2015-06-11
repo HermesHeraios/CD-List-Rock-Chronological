@@ -44,6 +44,10 @@ Born c. 1940s
 
 -- Bread: 1
 
+* The Best of Bread (1969-1976/2001), Elektra R2 74311 [soft rock]
+
+{If all day-time TV music were written by David Gates we'd be living on the moon, but then David Gates would be a very busy boy.}
+
 -- Elton John: 1
 
 -- Carole King: 1 
