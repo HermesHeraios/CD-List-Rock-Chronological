@@ -1,5 +1,5 @@
-# CD-List-Rock-Chronological
-That part of the meta-catalog of CDs devoted to rock acts, organized chronologically....
+# CD-List-Rock-Chronological 
+Rock is something with a mixed spirit, which was given to a very settled people.
 
 Specifically, these are the chronological categories: 
 
